@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **m.riswan0921@gmail.com**
 
-- ⚡ Fun fact **I play games Dota 2 and Stck Trading.**
+- ⚡ Fun fact **Nothing.**
 
 ### 🚀 Languages and Tools:
 
